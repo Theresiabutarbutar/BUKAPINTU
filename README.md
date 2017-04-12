@@ -1,0 +1,2 @@
+# BUKAPINTU
+MEmbuat jadi mobilr
